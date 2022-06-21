@@ -2,4 +2,4 @@
  Bharat Roleplay Media/branding Kit Currently work in progress
 
 
-A lot of changes will pe update here soon!..
+A lot of changes will be update here soon!..
